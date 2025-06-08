@@ -22,3 +22,5 @@ Overall, this portfolio is something I’m really proud of. It’s more than jus
 
 *OUTPUT* :
 
+![Image](https://github.com/user-attachments/assets/1bc5ff04-a9bd-4f3e-aa56-9042a26d6093)
+![Image](https://github.com/user-attachments/assets/0d5444e0-a738-4d5a-b48f-f09087390d91)
